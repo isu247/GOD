@@ -12,3 +12,4 @@ an operating system that you can add a file with a face and a name. So that webs
 
 
 At first there was darkness. Then god said let there be light. That light spread accross the world and many great things happened. 
+As mankind spread across the world they converged on a paradise called the United States. 
