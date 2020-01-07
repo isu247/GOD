@@ -5,7 +5,7 @@ Graphical User Interface with Tinkter
 Facial Recognition program
 Webscraper
 
-An operating system that you can add a file with a face and a name and has a webscraping bot with artificial inteligence. That will seek out that individual throughout the world. yandex.com has a good example for facial regognition but would need a geographical locator for pinpoint location accuracy.
+An operating system that you can add a file with a face and a name and has a webscraping bot with artificial inteligence. That will seek out that individual throughout the world. yandex.com has a good example for facial regognition but would need a geographical filter in the search option.
 
 An operating system that you can add a file with a face and a name. So that webscraping bots with artificial inteligence will seek out their internet presence. Sort their behavior and classify good and bad behavior with evidene.
 
