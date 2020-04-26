@@ -5,12 +5,24 @@ Graphical User Interface with Tinkter
 Facial Recognition program
 Webscraper
 
-An operating system that you can add a file with a face and a name and has a webscraping bot with artificial inteligence. That will seek out that individual throughout the world. yandex.com has a good example for facial regognition but would need a geographical filter in the search option.
+
+
+An operating system that you can add a file with a face and a name and has a webscraping bot with artificial inteligence. That         will seek out that individual throughout the world. yandex.com has a good example for facial regognition but would need a geographical filter in the search option.
+
+
 
 An operating system that you can add a file with a face and a name. So that webscraping bots with artificial inteligence will seek out their internet presence. Sort their behavior and classify good and bad behavior with evidene.
 
 
+
 An operating system that reads letters and numbers in photos and videos.
+
+
+
+At first there was darkness. Then god said let there be light. That light spread accross the world and many great things happened. 
+As mankind spread across the world they converged on a paradise called the United States. 
+
+
 
 WARDRUMS
 imigrrant soldiers
@@ -31,6 +43,7 @@ imigrrant soldiers
 
 
 BOOM
+
 
 
 
@@ -132,14 +145,13 @@ and one trumpet.
 
 
 
-At first there was darkness. Then god said let there be light. That light spread accross the world and many great things happened. 
-As mankind spread across the world they converged on a paradise called the United States. 
+COMMUNISM
 
 
 
-
-
-
+war was raw
+war and raw
+war is ra
 
 
 
