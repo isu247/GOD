@@ -167,7 +167,7 @@ over time the earths trembling subsided, the fires burned down and the smoke dis
 
 The boy knew where everyone stood now. Everything was laid bare for the boy to see. 
 The world he had grown up in was all a lie. 
-Every thing he was told and lived was a lie to manipulate the people and manipulate them into submission, poverty and death.
+Every thing he was told and lived was a lie to demoralize the people and manipulate them into submission, poverty and death.
 But it would be that way no more.
 Because the boy knew now, and he was more powerful than they could ever imagine.
 The earth was his rightful inheritance and they had deceived him. He had known all along but lived the life they supplied for him.
