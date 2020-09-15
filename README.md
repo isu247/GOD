@@ -162,3 +162,34 @@ war is ra
 
 
 over time the earths trembling subsided, the fires burned down and the smoke dissipated. In the distance you could see, the boy was still standing! the boy was still standing!
+
+
+
+The boy knew where everyone stood now. Everything was laid bare for the boy to see. 
+The world he had grown up in was all a lie. 
+Every thing he was told and lived was a lie to manipulate the people and manipulate them into submission, poverty and death.
+But it would be that way no more.
+Because the boy knew now, and he was more powerful than they could ever imagine.
+The earth was his rightful inheritance and they had deceived him. He had known all along but lived the life they supplied for him.
+locked in a room all his life to try to suppress him.
+But he would fall for it no more. Because now he knew!
+The earth was now in shambles because of the deceptions of all the world leaders.
+They had to go.
+We were almost at the point of no return. The boy could have stopped it all much earlier but he let it go because he had to know.
+
+
+
+Anger and rage boiled in the boy. How could humans be so cruel to each other?
+But it was not humans was it?
+The boy could not take it any longer. The secrets of the earth were at his fingertips. He is a god now.
+It was time for
+
+Anger and rage boiled in the boy. How could no body see what was happening?
+But they could not see could they?
+The boy could not take it any longer. The secrets of the earth were at his fingertips. He is a god now.
+It was time for
+
+
+
+RETRIBUTION
+
