@@ -30,6 +30,11 @@ One day in Pelican Bay I met a man named Joe Remiro. A book had been written abo
 
 
 
+One day in Pelican Bay
+Chapter 3
+Four Leaf Clover
+One day in Pelican Bay I met a group of men. They had been waiting for me for a long time, because they knew that I was the sun.
+
 WARDRUMS
 imigrrant soldiers
 
