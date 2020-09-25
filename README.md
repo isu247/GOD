@@ -32,8 +32,24 @@ One day in Pelican Bay I met a man named Joe Remiro. A book had been written abo
 
 One day in Pelican Bay
 Chapter 3
-Four Leaf Clover
-One day in Pelican Bay I met a group of men. They had been waiting for me for a long time, because they knew that I was the sun.
+The Boogey Man
+One day in Pelican Bay I met a group of men. They had been waiting for me for a long time.
+They were the set up crew. You see when its time to set someone up for a fall you gotta have a crew.
+They had all been in prison for a very very long time and they were all notorious anti government killers,
+but I was just the sun.
+These men told me a fabulous story of treachery, deceit and so much more.
+you see they had spent their whole lives fighting the government.
+Only to find out that the government was not at all what they thought it was.
+They were so confused at this point. They did'nt know if they were coming or going.
+They took me and introduced me to a man named Muharem Kurbegovic. This man is called the Alphabet Bomber and was a member of an American terrorist group called Aliens of America. In 1974 he was given a life sentence for blowing up the Los Angeles Airport killing 3 and injuring 36.
+They wanted me to hear his story because after all these years they started to beleive him.
+Muharem was out in the middle of the yard at Pelican Bay when I met him. He was searching for four leaf clovers in the grass and had a handfull. He found one more as I walked up to him.
+Then he began to tell me his story. He told me that the los Angeles city council and Board of Supervisors were using some type of secret language. He had discovered it on accident when he was up against them for some kind of business dispute. He had tried to tell people but they all thought he was crazy and would not listen. He said they were Aliens using an Alien language based on power words. He even taught me the language and their alphabet. He said when all else failed and no one would listen, he decided to take matters into his own hands. He started bombing people and places including a police commisioner and a judge. The jury found the so-called Alphabet Bomber guilty on 25 counts of murder, arson, attempted murder, possession of explosive material and exploding a bomb, The Times reported.
+After he told me this fabulous story he handed me a four leaf clover and told me good luck.
+I would not find out till much lateer how they had set me up. Because one day I found myself sitting at a city council and saw it for myself.
+
+
+
 
 WARDRUMS
 imigrrant soldiers
