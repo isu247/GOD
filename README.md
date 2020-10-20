@@ -215,3 +215,12 @@ They all see you now!
 
 
 RETRIBUTION
+
+
+
+Business Development
+Has your business gone down hill lately. If you havent noticed all of the big box stores are going out of business. It had to be this way because they were sucking the life out of our country. So this opens the door for you to get creative and find new ways to reach your customers. Our recomendation would be to lean twards ecommerce. Market to your immediate neighbors and businesses. All of your competition will be doing it because soon it will be the only way to stay afloat. If your current products are not selling, don't be afraid to add other services. The Covid has taught us how to stretch our creative limits. Every neighborhood must become as self seffficient as possible in order to make it through these tough days ahead. The Yard offers soltions for your business. From Marketing, to web design and app development. we are a one stop shop for your business development needs.
+
+
+Self Help
+We know that the days ahead are going to be hard for you. so we have developed an online self help system for you to browse through. We offer extensive re-education topics that can trans form any individual into the human being that they wish to be. all you have to do is complete the courses provided. we have not developed any of these topics and have no affiliation with them other than teaching the curriculums. Take your time and find one that fits your needs. We specialize in Behavior Modification and have been providing self help correspondence courses to Institutionalized individuals for over 20 years.
